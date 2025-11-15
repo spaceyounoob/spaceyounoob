@@ -1,2 +1,4 @@
-# i work for myself
-i love nightmares...
+# SO UHHh
+WHY ARE YOU READING MY README.MD
+# I HATE YOU
+RAHHHHHH
